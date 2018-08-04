@@ -1,2 +1,0 @@
-# indiradayo.github.io
-indirad
